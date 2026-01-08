@@ -6,3 +6,5 @@
 [Google Drive](https://drive.google.com/drive/folders/1rE0fAR43tgZf0bbucsE6FbpqOkYgHyCu?usp=sharing)
 
 ![image_009_0000](https://github.com/user-attachments/assets/cad24d77-dda2-42fa-b146-cbf4e951ebaf)
+<img width="1915" height="1029" alt="image" src="https://github.com/user-attachments/assets/da00bfee-7bc2-4361-a72c-21121c8fb427" />
+
